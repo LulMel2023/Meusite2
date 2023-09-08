@@ -1,1 +1,1 @@
-Menu hamburger
+Menu hambúrguer
